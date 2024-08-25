@@ -10,4 +10,4 @@ Are black cats bad luck? Not always! [Learn more about black cats and supersitio
 Black cats are facinating. [Here are 13 facinating facts on black cats.](https://www.thesprucepets.com/facts-about-black-cats-554102).
 
 ## Lexus the black cat
-
+![Black cat in printed shirt](PXL_20240225_003715649.PORTRAIT.jpg)
