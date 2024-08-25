@@ -11,3 +11,6 @@ Black cats are facinating. [Here are 13 facinating facts on black cats.](https:/
 
 ## Lexus the black cat
 ![Black cat in printed shirt](PXL_20240225_003715649.PORTRAIT.jpg)
+- 12 years old
+* 27 pounds of love
+* Loves to nap
