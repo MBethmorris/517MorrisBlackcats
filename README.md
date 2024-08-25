@@ -1,3 +1,4 @@
 # 517MorrisBlackcats
  Highlighting black cats
-my_folder/.keep
+my_folderimages/.keep
+
