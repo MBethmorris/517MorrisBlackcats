@@ -14,3 +14,8 @@ Black cats are facinating. [Here are 13 facinating facts on black cats.](https:/
 - 12 years old
 * 27 pounds of love
 * Loves to nap
+
+# Food
+1. Important
+2. Knows the timing for his feeding at 6:30 am and 6:30 pm
+3. Will not eat wet food but loves Greenies treats
